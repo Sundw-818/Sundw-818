@@ -9,8 +9,8 @@ My name is `Chloey`, or `孙黛雯 Daiwen Sun`.
 - AI4Science Research Intern👩‍💻: [BAAI](https://www.baai.ac.cn/english.html)
 - Bachelor: Sun Yat-Sen University, Biotechnology & Statistics
 - Master & Ph.D. 🎓: Renmin University of China, Applied Mathematics, Bioinformatics
-- Live in Haidian District, Beijing, China🀄️
-- INTP
+- Live in Haidian District, Beijing, China🇨🇳
+- INTP 🤓
 
 ## Interests
 
